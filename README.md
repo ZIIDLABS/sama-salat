@@ -1,3 +1,6 @@
+<img width="1680" height="1504" alt="hand_phone_sama_salat_text_orange (2)" src="https://github.com/user-attachments/assets/67f5965e-6735-425e-a080-519c69a5eb15" />
+
+
 
 <div align="center">
 
